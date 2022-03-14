@@ -1,1 +1,0 @@
-# AR_GPS_PROJECT2nsfqk
